@@ -2,7 +2,7 @@
 je reviens de l'enfer  
 un "bal poitevin"  
 en gros c'est une salle des fêtes, un gars avec son acordéon, et 30 personnes qui tentent vaguement de danser une sorte de country vendéene  
-j'ai réussi à instrumatenlisé mon fils pour rentrer,  
+j'ai réussi à instrumentaliser mon fils pour rentrer,  
 "tu es fatigué hein, tu préferes rentrer ? bon je vais aller coucher le petit hein passez une bonne soirée"  
 et il n'y avait pas d'alcool  
 autant dire que là, je vais me servir un wisky  
@@ -22,10 +22,10 @@ MAIS WAT?
 quelle drôle d'idée aussi d'aller à un bal poitevin sans alcool  
 
 **goulven [12:31 AM]**  
-c'était pour finacer des voyages scolaires  
+c'était pour financer des voyages scolaires  
 qu'organise ma compagne  
-qui fait chier des fois avec ses coneries  
-mais que j'aime  
+qui fait chier des fois avec ses conneries  
+mais que j'aime
 enfin mes filles elles s'éclatent hein, elles peuvent danser avec des vieux, le kif  
 mais c'est clair que dans un festnoz au moins tu peux te demettre la tete  
 en même temps je conduisais donc bon  
@@ -227,7 +227,7 @@ et pourquoi .com ?
 **goulven [12:57 AM]**  
 non il est juste devant moi  
 pas encore commencé  
-mais rien que de le verser dans le verre sur le glaçon, c'est un un putain de soulagemeent crois moi  
+mais rien que de le verser dans le verre sur le glaçon, c'est un un putain de soulagement crois moi  
 
 **julien [12:57 AM]**  
 c'est vrai que .com c'est has been  
@@ -339,7 +339,7 @@ j'espère que tu te sens bien coupable
 haha  
 
 **goulven [1:11 AM]**  
-ma femme fait peur aux hommmes  
+ma femme fait peur aux hommes  
 
 **heybrgr [1:11 AM]**  
 en même temps quelle idée  
@@ -367,7 +367,7 @@ rah l'excuse il y aura d'autres enfants
 tellement entendue petit  
 
 **goulven [1:13 AM]**  
-je me gare, grande baie vitrée, une sale immense, 4 vieux qui se balancent molement au milieu  
+je me gare, grande baie vitrée, une salle immense, 4 vieux qui se balancent molement au milieu  
 "putaaaaaaiiiiinnnnnn"  
 "allez, on va s'éclater"  
 "on est bien mieux là que devant un pixar à la maison avec des chips ! "  
@@ -380,7 +380,7 @@ Cannes Lions 2009 FREESTYLER
 
 
 **goulven [1:15 AM]**  
-là même mais avec une salle 10 fois plus grande éclairée aux néons (edited)  
+là même mais avec une salle 10 fois plus grande éclairée aux néons 
 
 **heybrgr [1:16 AM]**  
 SALLE POLYVALENTE D'ANIMATION RURALE  
@@ -422,7 +422,7 @@ en fait pour dire "je" ils disent "y"
 et quand ils te parlent ils disent "il" ou "le monsieur" ?  
 
 **goulven [1:21 AM]**  
-ça fait genre "yva y les chopier les tiopeaux que ca vaye point durey y s'y connais ben tien  
+ça fait genre "y va y les chopier les tiopeaux que ca vaye point durey y s'y connais ben tien  
 
 **heybrgr [1:21 AM]**  
 :heart:  
@@ -430,7 +430,7 @@ viens @julien on est bien là on parle patois et chasse à la taupe
 
 **goulven [1:22 AM]**  
 oui donc "y"y c'est pour "je" mais c'est aussi pour "vous" mais genre je parle de toi  
-du coup ben c'est beacoup de moment génants  
+du coup ben c'est beaucoup de moments génants  
 
 **heybrgr [1:22 AM]**  
 "ah vous me parliez en fait ? autant pour moi !"  
@@ -637,7 +637,7 @@ entre leur mère aux chiottes et leur père qui boit
 
 **goulven [1:47 AM]**  
 je peux supposer que les enfants dorment  
-bah ça c'st business as usal chez nous  
+bah ça c'est business as usal chez nous  
 tu viens de parfaitement résumer notre vie de famille  
 
 **heybrgr [1:48 AM]**  
@@ -653,7 +653,7 @@ pendant que tu fais la sieste
 **goulven [1:48 AM]**  
 au milieu des oies béliqueuses  
 ça les habituera au monde du travail  
-mieux qu'on stage chez @julien et son blason là  
+mieux qu'un stage chez @julien et son blason là  
 
 **heybrgr [1:49 AM]**  
 http://i.imgur.com/E1jiRyL.gif (499KB)  
@@ -712,7 +712,7 @@ attend on a pas 10k messages en 1h là
 no way  
 
 **goulven [1:54 AM]**  
-e crois que slak nous a à l'oeil  
+je crois que slak nous a à l'oeil  
 
 **heybrgr [1:54 AM]**  
 je déco reco pour voir  
@@ -761,7 +761,7 @@ haha
 
 **goulven [1:58 AM]**  
 "sisi vas y c'est des pervers ils doivent y trouver leur compte" (edited)  
-"putains de malades"  
+"putain de malades"  
 
 **heybrgr [1:58 AM]**  
 "après tout ils nous bouffent des cycles processeurs avec leurs bots à la con"  
